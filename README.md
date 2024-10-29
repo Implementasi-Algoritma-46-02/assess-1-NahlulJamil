@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Nahlul Jamil Azrirrahman
 
-NIM : 
+NIM : 607062400075
 
 ## Instruksi
 
